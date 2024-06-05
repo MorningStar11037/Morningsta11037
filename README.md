@@ -1,1 +1,2 @@
 # Morningsta11037
+Oie meu nome é Davi, eu tenho 17 anos e moro em SP, Santo André. Eu estudo na escola Rubens Moreira da Rocha e estou no último ano do Ensino Médio. Nos tempos livres, eu gosto de estudar sobre Metafísica e Teologia, e eu sou particularmente politeísta, ou seja, acredito que todos os Deuses existem, mas que apenas Um é Acima deles (no caso, o Deus da Bíblia). Eu também gosto bastante de Angelologia, ou seja, o Estudo sobre Anjos, e meus Anjos favoritos são Miguel, Gabriel, Samael e Abaddon.
